@@ -5,7 +5,7 @@
 - 👯 I’m looking to collaborate on projects that have a great team culture!
 - 🤔 I’m looking for help with finding a job that values quality over quantity, and people over product!
 - 💬 Ask me about CrossFit, movies, anime, travel(sigh)!
-- 📫 How to reach me: https://www.linkedin.com/in/david-steel-7b1a50201/
+- 📫 How to reach me: https://www.linkedin.com/in/david-steel-7b1a50201/ and email webdevsteel@gmail.com
 - 😄 Pronouns: He/Him/CrossFit junkie
 - ⚡ Fun fact: I am addicted to CrossFit and enjoy the occasional craft beer (currently a fan of the sours)
 
